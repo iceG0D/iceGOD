@@ -7,7 +7,7 @@
 ![Imgur Image](https://imgur.com/xqHGlIm.png)
 
 ## [BubbleSkin 20-10-09]
-![Imgur Image]((https://imgur.com/qzrl3OU.png))
+![Imgur Image]((https://imgur.com/qzrl3OU.png)
 
 ## [BubbleSkin20-03-20]
 ![Imgur Image](https://imgur.com/BZ6vg8N.png)
